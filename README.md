@@ -1,4 +1,4 @@
-# Hi, I'm Dhyan Shyam 👋
+# Hi, I'm Dhyan Shyam
 
 ## 👋 About Me
 
